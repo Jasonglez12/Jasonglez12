@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jasonglez12
-- 👀 I’m interested in CyberSecurity and Pen-Testing
+- 👀 I’m interested in learning more Code! Woohoo!!
 - 🌱 I’m currently learning C++.
 - 💞️ I’m looking to collaborate on whatever. 
 - 📫 How to reach me: Instagram, @jason.glez
