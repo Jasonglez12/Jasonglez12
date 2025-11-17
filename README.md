@@ -11,7 +11,8 @@
 
 - ⚡ Fun fact **I hiked the narrows in Zion!🌿**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me on LinkedIn:</h3>
+<h3 align="center">www.linkedin.com/in/jason-gonzalezjg</h3>
 <p align="left">
 </p>
 
